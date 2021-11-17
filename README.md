@@ -3,3 +3,4 @@
 - Suddenly by Be'O
 - Alcohol Free by TWICE
 - Valentine by Snail Mails
+- Darling by Halsey
